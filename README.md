@@ -13,3 +13,5 @@
 🍰    ;  feel free to ask for discord
 
 🍰    ;  sign ata! ---> https://bachiisagi.atabook.org
+
+🍰    ;  be kind to yourself, okay?
