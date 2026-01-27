@@ -8,7 +8,7 @@
 
 🍰    ;  other ships can int too, i dont mind
 
-🍰    ;  i have very bad social anxiety so apologies in advance, i overthink interactions a lot
+🍰    ;  i have diagnosed severe social anxiety and suspected chronic fatigue, please be patient with me
 
 🍰    ;  dont copy my ponies
 
