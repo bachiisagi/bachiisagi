@@ -26,7 +26,7 @@ do not copy my ponies, ASK for inspo!
 <p align="center">
 you can add my discord (@kippfish) if you'd like, im a lot more active on there, but please say who you are/that ur from pt! </b>
 <p align="center">
-DNI: basic dni criteria, the freak circus, tcoaal, wss, vivziepop media, ai supporters, proshippers, maga ; IWC: hetalia, tadc, forsaken, joking abt srs topics
+DNI: basic dni criteria, the freak circus, tcoaal, wss, vivziepop media, ai supporters, proshippers, maga
 <p align="center">
 be kind to yourself and others
 
