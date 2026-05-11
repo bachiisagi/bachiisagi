@@ -1,15 +1,16 @@
 <img width="1200" height="400" alt="9d9b8799437d49107afcefeea2e469e2 (1)" src="https://github.com/user-attachments/assets/919e3f20-6736-451c-9535-e252a3bdd6d5" />
 
-<img width="1200" height="20" alt="01" src="https://github.com/user-attachments/assets/0eb6377d-2e3e-4c63-9aae-597f8d736117" />
+<img width="1200" height="30" alt="8fc9e779a2b90400986dbda03ad311c5" src="https://github.com/user-attachments/assets/82709754-5506-4136-a700-ddc4ea1975af" />
+
 
 <p align="center">
 <b>this is my main github but i do have others
 <p align="center">
-i'm a fictionkin, reki ID/selfhood
+shuichi saihara fictionkin
 <p align="center">
-16 turning 17 soon, 20+ and 13- dni (if i interact and you're younger/older than these, i likely was not aware!), i tend to see anyone younger than 15 as a little sibling
+16 turning 17 soon, 20+ and 13- dni (if i interact and you're younger/older than these, i likely was not aware!)
 <p align="center">
-c+h is always okay and encouraged, i promise i dont bite! i love making friends, so please int!!
+c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int
 <p align="center">
 keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. also, it's called safe server for a reason, don't be a huge freak in public chat, i just find it unnecessary and weird
 <p align="center">
@@ -25,11 +26,11 @@ do not copy my ponies, ASK for inspo!
 <p align="center">
 you can add my discord (@kippfish) if you'd like, im a lot more active on there, but please say who you are/that ur from pt! </b>
 <p align="center">
-DNI: basic dni criteria, the freak circus, tcoaal, any vivziepop media, ai supporters, proshippers, maga ; IWC: hetalia, tadc, forsaken, dsmp, joking abt srs topics
+DNI: basic dni criteria, the freak circus, tcoaal, wss, any vivziepop media, ai supporters, proshippers, maga ; IWC: hetalia, tadc, forsaken, joking abt srs topics
 <p align="center">
-biggest fandoms/interests atm: Identity V, Sk8 The Infinity, Genshin Impact, Studio Investigrave, Honkai Star Rail, Ensemble Stars, Link Click, Formula 1, Cookie Run Kingdom, Project Hail Mary, Stranger Things, Danganronpa, My Hero Academia, Gachiakuta, Paradox Live, Servamp, Bungou Stray Dogs, Blue Lock, Terror In Resonance, Death Note, South Park, Lego Ninjago, Riordanverse, Epic The Musical, Visual Kei genre, Twisted Wonderland, Voltron, Kingdom Hearts, Date Everything, Omori, Don't Starve, Haikyuu, Hypnosis Mic, The Summer Hikaru Died, Ouran Highschool Host Club, ETC!
+biggest fandoms/interests atm: Identity V, Sk8 The Infinity, Genshin Impact, Danganronpa, Studio Investigrave, Honkai Star Rail, Ensemble Stars, Link Click, Formula 1, Cookie Run Kingdom, Project Hail Mary, Stranger Things, My Hero Academia, Gachiakuta, Paradox Live, Servamp, Bungou Stray Dogs, Blue Lock, Terror In Resonance, Death Note, South Park, Lego Ninjago, Riordanverse, Epic The Musical, Visual Kei genre, Twisted Wonderland, Voltron, Kingdom Hearts, Date Everything, Omori, Don't Starve, Haikyuu, Hypnosis Mic, The Summer Hikaru Died, Ouran Highschool Host Club, ETC!
 <p align="center">
-be kind to yourself and others, okay! ^_^!! reki out!
+be kind to yourself and others
 
 <img width="1200" height="10" alt="b70ab07e" src="https://github.com/user-attachments/assets/b8219fcb-8518-45f2-9c00-6b36e039a613" />
 <p align="center">
