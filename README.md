@@ -8,7 +8,7 @@
 <p align="center">
 shuichi saihara fictionkin
 <p align="center">
-16 turning 17; 20+ and 13- dni (if i interact and you're younger/older than these, i likely was not aware!)
+16 turning 17; 20+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int
 <p align="center">
@@ -38,28 +38,29 @@ fav chars + ships ---> https://fishing4kipp.carrd.co
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/ec3d540a-cf0e-4039-9f44-ea477d295e1e" width="30%" />
-  <img src="https://github.com/user-attachments/assets/fa2e7d9b-d670-41e9-bf16-60611e394c95" width="30%" />
+  <img src="https://github.com/user-attachments/assets/1d99a4f6-c40c-4ac0-8e67-eaf767b77816" width="30%" />
   <img src="https://github.com/user-attachments/assets/0bf90e46-adbb-4c50-974f-a3a688905608" width="30%" />
 </p>
 <p align="center">
-  <img height="40" src="https://github.com/user-attachments/assets/30c969d0-7369-43fd-9d8e-38f0a2bff82f" width="30%" />
-  <img height="40" src="https://github.com/user-attachments/assets/bd032780-e488-4abd-9dcd-76262ebca8ea" width="30%" />
-  <img height="40" src="https://github.com/user-attachments/assets/ac2202f1-b50e-43e7-9c6b-e334894f17d1" width="30%" />
+  <img height="40" src="https://github.com/user-attachments/assets/294cc0df-ff89-4e02-9c45-da66f87b7fb4" width="30%" />
+  <img height="40" src="https://github.com/user-attachments/assets/4939169a-8fe4-4c15-a8ce-d467ad87cca3" width="30%" />
+  <img height="40" src="https://github.com/user-attachments/assets/851da9a1-0b19-4f91-b46f-44459cb88819" width="30%" />
 </p>
 <p align="center">
-  <img height="40" src="https://github.com/user-attachments/assets/b4b00ccb-2f92-4bde-90bf-d5a189d1cc97" width="30%" />
+  <img height="40" src="https://github.com/user-attachments/assets/8ce09bb2-7888-455b-a3c6-5c3c77d6e797" width="30%" />
   <img height="40" src="https://github.com/user-attachments/assets/49c4d886-708b-4cfe-a986-3f31c894b7b1" width="30%" />
   <img height="40" src="https://github.com/user-attachments/assets/8b19cc25-4b21-440e-a5b9-f53439f3cf69" width="30%" />
 </p>
 <p align="center">
-  <img height="40" src="https://github.com/user-attachments/assets/2884874e-eb9c-4966-8ec2-bfbdc140ea68" width="30%" />
-  <img height="40" src="https://github.com/user-attachments/assets/02a2bfa0-9ecd-437c-96c9-d89728951f4a" width="30%" />
+  <img height="40" src="https://github.com/user-attachments/assets/8df8f10b-d969-41bb-bbe3-f88dcdc31b23" width="30%" />
+  <img height="40" src="https://github.com/user-attachments/assets/791e0978-97a9-4c92-a333-cb127b1884e9" width="30%" />
   <img height="40" src="https://github.com/user-attachments/assets/957e2036-14c7-430a-8924-70d4f7817295" width="30%" />
 </p>
 <p align="center">
-  <img height="40" src="https://github.com/user-attachments/assets/23343c16-97f1-4459-b460-3718606cf766" width="30%" />
-  <img height="40" src="https://github.com/user-attachments/assets/45c8b5c9-fb82-4a82-bfc2-e254d30d6d01" width="30%" />
-  <img height="40" src="https://github.com/user-attachments/assets/61ed9417-577b-4aa1-ae1a-e6c4d3e01dca" width="30%" />
+  <img height="40" src="https://github.com/user-attachments/assets/3ca25c84-c33e-43fe-a221-304b6d8db474" width="30%" />
+  <img height="40" src="https://github.com/user-attachments/assets/94a40847-5160-49a4-b315-537ba091213c" width="30%" />
+  <img height="40" src="https://github.com/user-attachments/assets/2de3f9cf-b18b-461b-885a-e9fc383407ea" width="30%" />
+
 </p>
 
 
