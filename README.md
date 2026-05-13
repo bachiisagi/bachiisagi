@@ -6,13 +6,17 @@
 <p align="center">
 <b>not my main github
 <p align="center">
-shuichi saihara fictionkin
+shuichi saihara fictionkin (+ byakuya togami, rantaro amani, hajime hinata)
 <p align="center">
 16 turning 17; 20+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int
 <p align="center">
+half of the people in the DR area tick me off so i have a lot hidden/blocked, but if youre hidden its for a good reason.
+<p align="center">
 keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. also, it's called safe server for a reason, don't be a huge freak in public chat, i just find it unnecessary and weird
+<p align="center">
+i can be very irritable but it's very rarely targeted at a person, so don't assume im mad at you if i act snappy
 <p align="center">
 using the chat can cause me great anxiety sometimes, so there may be times i will only use pony actions, its still absolutely okay to interact at these times, just note i will likely not be talking or only very selective whispers
 <p align="center">
@@ -26,7 +30,7 @@ do not copy my ponies, ASK for inspo!
 <p align="center">
 you can add my discord (@kippfish) if you'd like, im a lot more active on there, but please say who you are/that ur from pt! </b>
 <p align="center">
-DNI: basic dni criteria, the freak circus, tcoaal, wss, vivziepop media, ai supporters, proshippers, maga
+DNI: basic dni criteria, the freak circus, tcoaal, wss, vivziepop media, ai supporters, proshippers, talking shit about people, jokes as an excuse to bully, maga
 <p align="center">
 be kind to yourself and others
 
