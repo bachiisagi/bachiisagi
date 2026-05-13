@@ -38,7 +38,7 @@ be kind to yourself and others
 
 
 <p align="center">
-   carrd ---> https://kippfish.carrd.co
+   carrd ---> https://saihaaras.carrd.co
   ata ---> https://bachiisagi.atabook.org
 fav chars + ships ---> https://fishing4kipp.carrd.co
 
