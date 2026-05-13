@@ -8,6 +8,8 @@
 <p align="center">
 shuichi saihara fictionkin (+ byakuya togami, rantaro amani, hajime hinata)
 <p align="center">
+doubles/other shuichis dni please, i hide most others i see, nothing against you just for my own comfort
+<p align="center">
 16 turning 17; 20+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int
