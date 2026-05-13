@@ -3,8 +3,8 @@
 <img width="1200" height="30" alt="8fc9e779a2b90400986dbda03ad311c5" src="https://github.com/user-attachments/assets/82709754-5506-4136-a700-ddc4ea1975af" />
 
 
-<p align="center">
-shuichi saihara fictionkin/ID      (+ byakuya togami, rantaro amani, hajime hinata)
+<b><p align="center">
+shuichi saihara fictionkin/ID (+ byakuya togami, rantaro amani, hajime hinata)
 <p align="center">
 doubles/other shuichis dni please, i hide most others i see, nothing against you just for my own comfort
 <p align="center">
@@ -30,7 +30,7 @@ i have diagnosed severe social anxiety and suspected chronic fatigue, please be 
 <p align="center">
 do not copy my ponies, ASK for inspo!
 <p align="center">
-you can add my discord (@kippfish) if you'd like, im a lot more active on there, but please say who you are/that ur from pt! </b>
+you can add my discord (@kippfish) if you'd like, im a lot more active on there, but please say who you are/that ur from pt!
 <p align="center">
 DNI: basic dni criteria, the freak circus, tcoaal, wss, vivziepop media, ai supporters, proshippers, talking shit about people, jokes as an excuse to bully, maga
 <p align="center">
