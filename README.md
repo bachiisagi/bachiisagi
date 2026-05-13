@@ -4,9 +4,7 @@
 
 
 <p align="center">
-<b>not my main github
-<p align="center">
-shuichi saihara fictionkin (+ byakuya togami, rantaro amani, hajime hinata)
+shuichi saihara fictionkin/ID      (+ byakuya togami, rantaro amani, hajime hinata)
 <p align="center">
 doubles/other shuichis dni please, i hide most others i see, nothing against you just for my own comfort
 <p align="center">
@@ -23,6 +21,8 @@ i can be very irritable but it's very rarely targeted at a person, so don't assu
 using the chat can cause me great anxiety sometimes, so there may be times i will only use pony actions, its still absolutely okay to interact at these times, just note i will likely not be talking or only very selective whispers
 <p align="center">
 multifandom, multishipper, rarepair enjoyer
+<p align="center">
+i really REALLY love all things in the racing scene anything to do with racing i adore (formula 1, street racing aus, fast+furious, etc etc!!!!) i have a lot of racing AU ponies as well as mechanic AU ponies!!!!!
 <p align="center">
 mediamates are always welcome to int, as well as ships! 
 <p align="center">
