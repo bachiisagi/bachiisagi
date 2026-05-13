@@ -35,7 +35,11 @@ you can add my discord (@kippfish) if you'd like, im a lot more active on there,
 DNI: basic dni criteria, the freak circus, tcoaal, wss, vivziepop media, ai supporters, proshippers, talking shit about people, jokes as an excuse to bully, maga
 <p align="center">
 be kind to yourself and others
-
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dijzczo5lfhxmq6mr3nalipx6e&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&mode=dark&bar_color=23a2a4&bar_color_cover=false">
+  </a>
+</p>
 
 <p align="center">
    carrd ---> https://saihaaras.carrd.co
