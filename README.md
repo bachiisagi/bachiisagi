@@ -16,6 +16,8 @@ half of the people in the DR(+mha if ur from there) area tick me off so i have a
 <p align="center">
 keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. also, it's called safe server for a reason, don't be a huge freak in public chat, i just find it unnecessary and weird
 <p align="center">
+my carrd has my full kinlist and more info abt me so check that out if you want wtv. most of my ponies are kins.
+<p align="center">
 i can be very irritable but it's very rarely targeted at a person, so don't assume im mad at you if i act snappy
 <p align="center">
 using the chat can cause me great anxiety sometimes, so there may be times i will only use pony actions, its still absolutely okay to interact at these times, just note i will likely not be talking or only very selective whispers
@@ -43,7 +45,7 @@ be kind to yourself and others
 
 <p align="center">
    carrd ---> https://saihaaras.carrd.co
-  ata ---> https://bachiisagi.atabook.org
+  ata (SIGN!) ---> https://bachiisagi.atabook.org
 fav chars + ships ---> https://fishing4kipp.carrd.co
 
 <p align="center">
