@@ -12,7 +12,7 @@ doubles/other shuichis dni please, i hide most others i see, nothing against you
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int
 <p align="center">
-half of the people in the DR area tick me off so i have a lot hidden/blocked, but if youre hidden its for a good reason.
+half of the people in the DR(+mha if ur from there) area tick me off so i have a lot hidden/blocked, but if youre hidden its for a good reason.
 <p align="center">
 keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. also, it's called safe server for a reason, don't be a huge freak in public chat, i just find it unnecessary and weird
 <p align="center">
@@ -22,7 +22,7 @@ using the chat can cause me great anxiety sometimes, so there may be times i wil
 <p align="center">
 multifandom, multishipper, rarepair enjoyer
 <p align="center">
-i really REALLY love all things in the racing scene anything to do with racing i adore (formula 1, street racing aus, fast+furious, etc etc!!!!) i have a lot of racing AU ponies as well as mechanic AU ponies!!!!! CEO of street racing AU DRV3
+i really REALLY love all things in the racing scene anything to do with racing i adore (formula 1, street racing aus, fast+furious, etc etc!!!!) i have a lot of racing AU ponies as well as mechanic AU ponies!!!!! CEO of street racing AU DRV3 + MHA racers au
 <p align="center">
 mediamates are always welcome to int, as well as ships! 
 <p align="center">
