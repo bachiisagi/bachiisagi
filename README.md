@@ -6,13 +6,11 @@
 <b><p align="center">
 shuichi saihara fictionkin/ID (+ byakuya togami, rantaro amani, hajime hinata)
 <p align="center">
-doubles/other shuichis dni please, i hide most others i see, nothing against you just for my own comfort
-<p align="center">
 16 turning 17; 20+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int
 <p align="center">
-half of the people in the DR(+mha if ur from there) area tick me off so i have a lot hidden/blocked, but if youre hidden its for a good reason.
+half of the people in the DR(+mha if ur from there) area tick me off so a lot are hidden/blocked, sorry
 <p align="center">
 keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. also, it's called safe server for a reason, don't be a huge freak in public chat, i just find it unnecessary and weird
 <p align="center">
