@@ -4,17 +4,15 @@
 
 
 <b><p align="center">
-shuichi saihara fictionkin/ID (+ byakuya togami, rantaro amani, hajime hinata)
+hi call me cody or kin names idec fr..... same w pronouns i vaguely prefer he but any are fine!
 <p align="center">
 16 turning 17; 20+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int
 <p align="center">
-half of the people in the DR(+mha if ur from there) area tick me off so a lot are hidden/blocked, sorry
+check out my strawpage + carrd for more info! and dont forget to sign my ata!
 <p align="center">
-keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. also, it's called safe server for a reason, don't be a huge freak in public chat, i just find it unnecessary and weird
-<p align="center">
-my carrd has my full kinlist and more info abt me so check that out if you want wtv. most of my ponies are kins.
+keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. also, it's called safe server for a reason, don't be a huge freak in public chat, i just find it unnecessary and weird. i block/hide/report freely <3
 <p align="center">
 i can be very irritable but it's very rarely targeted at a person, so don't assume im mad at you if i act snappy
 <p align="center">
@@ -22,9 +20,7 @@ using the chat can cause me great anxiety sometimes, so there may be times i wil
 <p align="center">
 multifandom, multishipper, rarepair enjoyer
 <p align="center">
-i really REALLY love all things in the racing scene anything to do with racing i adore (formula 1, street racing aus, fast+furious, etc etc!!!!) i have a lot of racing AU ponies as well as mechanic AU ponies!!!!! CEO of street racing AU DRV3 + MHA racers au
-<p align="center">
-mediamates are always welcome to int, as well as ships! 
+i really REALLY love all things in the racing scene anything to do with racing i adore (formula 1, street racing aus, fast+furious, etc etc!!!!) i have a lot of racing AU ponies as well as mechanic AU ponies!!!!! CEO of street racing AU DRV3 + MHA racers au 
 <p align="center">
 i have diagnosed severe social anxiety and suspected chronic fatigue, please be patient with me
 <p align="center">
