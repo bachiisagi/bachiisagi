@@ -1,28 +1,28 @@
-<img width="1200" height="400" alt="9d9b8799437d49107afcefeea2e469e2 (1)" src="https://github.com/user-attachments/assets/919e3f20-6736-451c-9535-e252a3bdd6d5" />
+<img width="1200" height="400" alt="9d9b8799437d49107afcefeea2e469e2 (1)" src="https://github.com/user-attachments/assets/7584f0bb-01eb-4e6c-93c7-31a30ec83ecd" />
 
 <img width="1200" height="30" alt="8fc9e779a2b90400986dbda03ad311c5" src="https://github.com/user-attachments/assets/82709754-5506-4136-a700-ddc4ea1975af" />
 
 
 <b><p align="center">
-hi call me cody or kin names idec fr..... same w pronouns i vaguely prefer he but any are fine!
+heya! you can call me cody or any of my kin names! i mainly use he/hymn prns but i don't really have a preference!
 <p align="center">
 16 turning 17; 20+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
 <p align="center">
-c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int
+c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int!!!!
 <p align="center">
-check out my strawpage + carrd for more info! and dont forget to sign my ata!
+check out my strawpage + carrds for more info! and dont forget to sign my ata!
 <p align="center">
-keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. also, it's called safe server for a reason, don't be a huge freak in public chat, i just find it unnecessary and weird. i block/hide/report freely <3
+keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. also, it's called safe server for a reason, dont be weird in public chat and have common sense?? i block/hide/report freely <3
 <p align="center">
-i can be very irritable but it's very rarely targeted at a person, so don't assume im mad at you if i act snappy
+i can be very irritable but it's very rarely targeted at a person, so don't assume im mad at you if i act snappy! im usually very friendly!
 <p align="center">
 using the chat can cause me great anxiety sometimes, so there may be times i will only use pony actions, its still absolutely okay to interact at these times, just note i will likely not be talking or only very selective whispers
 <p align="center">
 multifandom, multishipper, rarepair enjoyer
 <p align="center">
-i really REALLY love all things in the racing scene anything to do with racing i adore (formula 1, street racing aus, fast+furious, etc etc!!!!) i have a lot of racing AU ponies as well as mechanic AU ponies!!!!! CEO of street racing AU DRV3 + MHA racers au 
+i really REALLY love all things in the racing scene anything to do with racing i adore (formula 1, street racing aus, fast+furious, etc etc!!!!) i have a lot of racing AU ponies as well as mechanic AU ponies!!!!! 
 <p align="center">
-i have diagnosed severe social anxiety and suspected chronic fatigue, please be patient with me
+i have diagnosed severe social anxiety and suspected chronic fatigue (among other things), please be patient with me!
 <p align="center">
 do not copy my ponies, ASK for inspo!
 <p align="center">
@@ -30,7 +30,9 @@ you can add my discord (@kippfish) if you'd like, im a lot more active on there,
 <p align="center">
 DNI: basic dni criteria, the freak circus, tcoaal, wss, vivziepop media, ai supporters, proshippers, talking shit about people, jokes as an excuse to bully, maga
 <p align="center">
-be kind to yourself and others
+main/fav fandoms atm: identity v, ensemble stars, danganronpa, my hero academia, hoyoverse, cookie run, merlin bbc, gachiakuta, witch hat atelier, riordanverse, ninjago, blue lock, the summer hikaru died, sk8 the infinity, sasaki to miyano, paradox live, hypnosis mic, twisted wonderland, dr stone, link click, kingdom hearts, dont starve, bungou stray dogs, studio investigrave, soul eater, mf ghost, haikyuu, voltron, ETC!!
+<p align="center">
+be kind to yourself and others!
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dijzczo5lfhxmq6mr3nalipx6e&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&mode=dark&bar_color=23a2a4&bar_color_cover=false">
