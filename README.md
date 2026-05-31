@@ -10,8 +10,6 @@ heya! you can call me cody or any of my kin names! i mainly use he/hymn prns but
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int!!!!
 <p align="center">
-check out my strawpage + carrds for more info! and dont forget to sign my ata!
-<p align="center">
 keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. also, it's called safe server for a reason, dont be weird in public chat and have common sense?? i block/hide/report freely <3
 <p align="center">
 i can be very irritable but it's very rarely targeted at a person, so don't assume im mad at you if i act snappy! im usually very friendly!
