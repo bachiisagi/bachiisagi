@@ -18,7 +18,7 @@ using the chat can cause me great anxiety sometimes, so there may be times i wil
 <p align="center">
 multifandom, multishipper, rarepair enjoyer
 <p align="center">
-i really REALLY love all things in the racing scene anything to do with racing i adore (formula 1, street racing aus, fast+furious, etc etc!!!!) i have a lot of racing AU ponies as well as mechanic AU ponies!!!!! 
+i really REALLY love all things in the racing scene anything to do with racing i adore (formula 1, mf ghost, initial d, street racing aus, fast+furious, etc etc!!!!) i have a lot of racing AU ponies as well as mechanic AU ponies!!!!! 
 <p align="center">
 i have diagnosed severe social anxiety and suspected chronic fatigue (among other things), please be patient with me!
 <p align="center">
